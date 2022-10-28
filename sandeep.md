@@ -1,2 +1,1 @@
-As of now posting the event pictures 
-
+<img align="right" alt="coding" width="400" src="https://media-exp1.licdn.com/dms/image/C4E22AQG5dhIfpRELrA/feedshare-shrink_800/0/1656302022977?e=1669852800&v=beta&t=2H1Cj9JYWhLK6wEf3Lu0XJEpMgC-8pHUieCrUQ0B6YQ">
